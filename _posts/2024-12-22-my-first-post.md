@@ -17,3 +17,4 @@ date: 2024-12-22
 # Christmas
 ## Christmas is coming!!
 ### I don't have any plans for Christmas day. I'll just stay in my room and scroll through SNS or browse the internet.
+### It's my way to spend the holiday. I sincerly wish everyone spends this holiday with happiness and good health.
