@@ -7,7 +7,7 @@ date: 2024-12-22
 ## What i did
 ### nothing much. I just took a shower and received a Walmart delivery. that's all i did today.
 
-# side stody
+# side story
 ## message from my dad
 ### He said there's light snow at his place
 #### I wish I could see snow too. I don't like cold weather, but I love snow. I want to make a snowman or a snow duck.
